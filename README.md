@@ -1,0 +1,1 @@
+#Lucky Board : Reaching the shore of wealth
